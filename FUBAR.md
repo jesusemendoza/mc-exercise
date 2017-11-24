@@ -9,4 +9,7 @@ This is what Bob & Carol did on Bob's computer when working on the first feature
 More shit from Bob & Carol.
 
 
+
+hi hi hi hi hi hi hiiiiiii. i wanna go home. 
 Hey ya'll Elliott had a great walk. He pooped a lot and met some other dogs. Wag is a pretty sweet appllcation, but it does have super hella bugy. Bye -Carol and Bob
+
